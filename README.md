@@ -16,44 +16,9 @@ Am 01.03.2017 gründete Alem Pajalic (DJ H8) in Waldkraiburg (Deutschland) "Room
 
 "Room 307 Records" hat über 100 Releases und war mit "Good Life" von DJ H8 in den "Elecrtonica Top 100 Beatport" Platz 61. Auch wurde von Room 307 Records ein Release Radio gegründet wo rund um die Uhr aktuelle und neue "Room 307 Records" Releases laufen.
 
- 
+![FAZE122_fazemag](https://user-images.githubusercontent.com/81182018/196064330-c5d367d7-caf1-4169-8183-3f77562ca45e.jpg)
+![Webaufnahme_4-4-2022_231122_](https://user-images.githubusercontent.com/81182018/196064331-40b8ead1-772a-46a5-bd87-9eba09d5388b.jpeg)
+![Webaufnahme_4-4-2022_231151_](https://user-images.githubusercontent.com/81182018/196064332-367eb559-0193-43d5-a591-7f83f10e5227.jpeg)
+![Webaufnahme_4-4-2022_231231_](https://user-images.githubusercontent.com/81182018/196064333-79fa9111-c21b-4a5c-a98f-f64b38198dc1.jpeg)
+![Webaufnahme_4-4-2022_231255_](https://user-images.githubusercontent.com/81182018/196064334-7463604d-8757-4510-8a4d-4e3e57334b35.jpeg)
 
-Label Members:
-
- 
-
-DJ H8
-
-Chris Lehmann
-
-Robert Stahl
-
-Das Ton
-
-Michael Kortenhaus
-
-Caspar Großmann
-
-BlackThunder
-
-KOPFDRUCKDR4MA
-
-Pete Van Payne 
-
-Sven Brechtel
-
-Mimmo .db
-
-STOIS
-
-Mrs. DIKS
-
-FTKNZ
-
-Magic Shaman
-
-EmilSunjazz
-
-#HateMe![Grün und Schwarz Modern Verkauf Marketing Präsentation
-
-(1)](https://user-images.githubusercontent.com/81182018/196064306-9fb8f1f0-3f92-4151-bbb8-ab84006370a4.png)
