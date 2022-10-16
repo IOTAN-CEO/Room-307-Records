@@ -1,6 +1,5 @@
 # Room-307-Records
 www.Room307Records.com
-Room 307 Records Biographie
 
  
 
