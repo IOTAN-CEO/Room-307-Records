@@ -18,5 +18,4 @@ Am 01.03.2017 gründete Alem Pajalic (DJ H8) in Waldkraiburg (Deutschland) "Room
 ![FAZE122_fazemag](https://user-images.githubusercontent.com/81182018/196064330-c5d367d7-caf1-4169-8183-3f77562ca45e.jpg)
 ![Webaufnahme_4-4-2022_231151_](https://user-images.githubusercontent.com/81182018/196064332-367eb559-0193-43d5-a591-7f83f10e5227.jpeg)
 ![Webaufnahme_4-4-2022_231122_](https://user-images.githubusercontent.com/81182018/196064331-40b8ead1-772a-46a5-bd87-9eba09d5388b.jpeg)
-![Webaufnahme_4-4-2022_231151_](https://user-images.githubusercontent.com/81182018/196064332-367eb559-0193-43d5-a591-7f83f10e5227.jpeg)
 ![Webaufnahme_4-4-2022_231231_](https://user-images.githubusercontent.com/81182018/196064333-79fa9111-c21b-4a5c-a98f-f64b38198dc1.jpeg)
